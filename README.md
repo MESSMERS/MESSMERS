@@ -1,4 +1,6 @@
-## Hi there 👋
+
+![image](https://github.com/user-attachments/assets/9adfba7a-6d78-4f3d-8336-3f28d8edf6c7)
+
 
 <!--
 **MESSMERS/MESSMERS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
