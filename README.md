@@ -6,7 +6,7 @@
 
 
 
-hello im @MESSMERS/ comfmer on pt :) he/him
+hello im @MESSMERS/ comfmer on pt :) he/him              
 im a friendly w2i c+h int guy
 
 <!--
